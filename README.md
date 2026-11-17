@@ -32,3 +32,4 @@ Junior Java Backend Developer, Backend Trainee or Spring Boot Developer roles â€
 - LinkedIn: [linkedin.com/in/ciroschot-dev](https://www.linkedin.com/in/ciroschot-dev)
 - GitHub: [github.com/ciroschot-dev](https://github.com/ciroschot-dev)
 - Email: [cirschot@gmail.com](mailto:cirschot@gmail.com)
+- WhatsApp: [+54 9 223 693 2481](https://wa.me/5492236932481)
